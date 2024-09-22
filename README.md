@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **atiyaxxmumtaz@gmail.com**
 
-- ⚡ Fun fact **Fluent in Data and Sarcasm- because insights need personality too!**
+- ⚡ Fun fact **Fluent in Data and Sarcasm- because insights need personality too!😄:**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
